@@ -1,4 +1,4 @@
-🔥 Desenvolvedora Web Full-Stack 
+🔥 Desenvolvedor Web Full-Stack 
 
  📚 Faço curso de Sistema de Informações.
 
